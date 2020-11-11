@@ -1,2 +1,0 @@
-# Lavoro-estivo
-impiccato 
